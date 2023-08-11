@@ -5,6 +5,14 @@
 
 #### Free and Paid! Small things i usually do for free.
 ## If ur interested then add me on discord: @vibvq 
+#### I am mostly anonymus but you came to my github page so..
+#### i think i can trust you!
+## About me:
+
+#### I live in germany and i speak 4 languages:
+#### English, Georgian, German, Russian.
+
+#### Like i said, dm me on discord and ill let you know everything!
 
 ### Advertisement:
 
