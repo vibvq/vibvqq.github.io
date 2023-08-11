@@ -14,7 +14,7 @@
 
 #### Like i said, dm me on discord and ill let you know everything!
 
-### Advertisement:
+### Discord Advertisement:
 
 ###### Hey! <3
 
