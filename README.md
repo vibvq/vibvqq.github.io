@@ -8,7 +8,7 @@
 
 ### Advertisement:
 
-####### Hey! <3
+###### Hey! <3
 
  I know this server is small and its no problem! 
 Come join our server and help up, every member is priceless.
